@@ -1,1 +1,1 @@
-# chem13-potfolio-rangasajo
+# chem13-portfolio-rangasajo
